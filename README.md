@@ -1,0 +1,1 @@
+# Fonksiyonel-Programlama-Vize-Final-But-Sorular
